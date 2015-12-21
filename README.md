@@ -7,14 +7,17 @@ J'aimerais être heureuse, avoir des enfants et une belle maison.
 J'aime trop manger.
 
 
+
 ##Expériences Professionelle
 
 Plusieurs stages dans le secteur de la mode.
 
 
+
 ##Formation
 
 BAC métiers de la mode vêtements.
+
 
 
 ##Pourquoi je suis sur SimplonLine ?
