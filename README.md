@@ -17,7 +17,7 @@ Plusieurs stages dans le secteur de la mode. (féminin et masculin)
 ##Formation
 
 BAC métiers de la mode vêtements.
-
+(pas facile de trouver du boulot dans ce domaine)
 
 
 ##Pourquoi je suis sur SimplonLine ?
