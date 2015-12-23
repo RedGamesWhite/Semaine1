@@ -4,13 +4,13 @@ Hey, je m'appelle **Estelle**
 
 J'aimerais être heureuse, avoir des enfants et une belle maison.
 
-J'aime trop manger.
+J'aime trop manger. (ne vous en faite pas, je fais du sport^^)
 
 
 
 ##Expériences Professionelle
 
-Plusieurs stages dans le secteur de la mode.
+Plusieurs stages dans le secteur de la mode. (féminin et masculin)
 
 
 
